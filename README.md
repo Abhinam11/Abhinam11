@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **abhinamkhatiyan806@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/starred](https://drive.google.com/drive/u/0/starred)
+- 📄 Know about my experiences [https://drive.google.com/drive/u/0/starred](https://drive.google.com/file/d/1wA4MwFcTtkODY_UEb1DME0vNIC_S4I6-/view?usp=drive_link)
 
 - ⚡ Fun fact **I make good coffee**
 
