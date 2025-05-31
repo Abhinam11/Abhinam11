@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **abhinamchaudhary93@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/starred]([https://drive.google.com/file/d/1n2QCZoPNZFX7OkT1f3xC_tmt1utsRkCb/view?usp=sharing](https://drive.google.com/file/d/1eoaeF6jddIA0P10o54gYWBqGnlX1ndGY/view?usp=sharing))
+- 📄 Know about my experiences [https://drive.google.com/file/d/1eoaeF6jddIA0P10o54gYWBqGnlX1ndGY/view?usp=sharing]
 
 - ⚡ Fun fact **I make good coffee**
 
