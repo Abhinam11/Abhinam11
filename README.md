@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=abhinam11&label=Profile%20views&color=0e75b6&style=flat" alt="abhinam11" /> </p>
 
-- 📫 How to reach me **abhinamkhatiyan806@gmail.com**
+- 📫 How to reach me **abhinamchaudhary93@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/drive/u/0/starred](https://drive.google.com/file/d/1n2QCZoPNZFX7OkT1f3xC_tmt1utsRkCb/view?usp=sharing)
 
